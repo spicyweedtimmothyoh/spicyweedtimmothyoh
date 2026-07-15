@@ -1,4 +1,3 @@
-![banner](https://github.com/zakuakyt/zakuakyt/blob/main/.github/Screenshot%202026-03-15%20221629.png)
 
   How to reach me **zakuakyt@gmail.com**
 
